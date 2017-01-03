@@ -1,4 +1,4 @@
-* # Oblique Strategies
+# Oblique Strategies: ideas for creative lateral thinking
 
 Oblique Strategies is a list of ideas to help break creative blocks by encouraging lateral thinking.
 
