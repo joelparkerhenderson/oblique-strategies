@@ -98,7 +98,7 @@ Oblique Strategies is a list of ideas to help break creative blocks by encouragi
 
 * Emphasize the flaws
 
-* Faced with a choice, do both (given by Dieter Rot)
+* Faced with a choice, do both (given by Dieter Roth)
 
 * Feedback recordings into an acoustic situation
 
