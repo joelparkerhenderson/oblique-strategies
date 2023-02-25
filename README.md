@@ -182,9 +182,7 @@ Oblique Strategies is a list of ideas to help break creative blocks by encouragi
 
 * Reverse
 
-* Short circuit (example: a man eating peas with the idea that they will
-
-* improve his virility shovels them straight into his lap)
+* Short circuit (example: a man eating peas with the idea that they will improve his virility shovels them straight into his lap)
 
 * Shut the door and listen from outside
 
